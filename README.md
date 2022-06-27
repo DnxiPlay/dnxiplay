@@ -1,6 +1,6 @@
 ## 👨‍💻 About Me
 
-🚫 I’m currently working on my secret website.
+🚫 I’m currently working on secret projects.
 
 🥞 Currently I'm studying in my world.
 
